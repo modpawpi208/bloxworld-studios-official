@@ -1,4 +1,4 @@
-<img width="2000" height="2000" alt="Logotipo_Abogada_Minimalista_Blanco_y_Beige" src="https://github.com/user-attachments/assets/446c6208-1b4d-4773-8721-098ac613d8f0" />
+<img width="500" height="500" alt="Logotipo_Abogada_Minimalista_Blanco_y_Beige" src="https://github.com/user-attachments/assets/446c6208-1b4d-4773-8721-098ac613d8f0" />
 
 # Bloxworld Studios Official
 **-¿QUÉ SOMOS?-**
