@@ -17,7 +17,7 @@ __*NO USAR PARA CONTACTAR*__
 - Pawpi Mod **CREATOR**: https://github.com/modpawpi208
 - Crisviter Dev **STAFF**: https://github.com/Crisviter
 
-- # FUTURO DEL ESTUDIO:
+# FUTURO DEL ESTUDIO:
 
   -Buscaremos **AYUDAS NECESARIAS** para el desarrollo de nuestras creaciones...
   -Si quieres o te interesaría **COLABORAR**: https://discord.com/users/1495746429337993407
