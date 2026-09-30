@@ -23,6 +23,7 @@ __*NO USAR PARA CONTACTAR*__
 - S3fflex Dev **STAFF**: https://github.com/S3fflexDev
 - Pawpi Mod **CREATOR**: https://github.com/modpawpi208
 - Crisviter Dev **STAFF**: https://github.com/Crisviter
+
 ✨────────────────✨✨────────────────✨✨────────────────✨
 
 # FUTURO DEL ESTUDIO:
