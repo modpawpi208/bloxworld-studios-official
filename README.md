@@ -10,6 +10,7 @@ Bloxworld Studios es una comunidad pública y estudio de desarrollo de Roblox. A
 **__¿DÓNDE NOS PUEDES ENCONTRAR?__**
 
 En Discord: https://discord.gg/2J65TVc4m
+✨────────────────✨
 
 # -DEVELOPERS/DESARROLLADORES-
 __*NO USAR PARA CONTACTAR*__
