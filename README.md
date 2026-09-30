@@ -8,3 +8,9 @@ Bloxworld Studios es una comunidad pública y estudio de desarrollo de Roblox. A
 **__¿DÓNDE NOS PUEDES ENCONTRAR?__**
 
 En Discord: https://discord.gg/2J65TVc4m
+
+# -DEVELOPERS/DESARROLLADORES-
+*NO USAR PARA CONTACTAR*
+- S3fflex Dev **STAFF**: https://github.com/S3fflexDev
+- Pawpi Mod **CREATOR**: https://github.com/modpawpi208
+- Crisviter Dev **STAFF**: https://github.com/Crisviter
