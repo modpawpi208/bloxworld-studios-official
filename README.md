@@ -16,3 +16,10 @@ __*NO USAR PARA CONTACTAR*__
 - S3fflex Dev **STAFF**: https://github.com/S3fflexDev
 - Pawpi Mod **CREATOR**: https://github.com/modpawpi208
 - Crisviter Dev **STAFF**: https://github.com/Crisviter
+
+  # FUTURO DEL ESTUDIO**:
+
+  -Buscaremos **AYUDAS NECESARIAS** para el desarrollo de nuestras creaciones...
+  -Si quieres o te interesaría **COLABORAR**: https://discord.com/users/1495746429337993407
+
+  *SOLO USAR PARA APORTAR O COLABORAR CON EL ESTUDIO...CUALQUIER DM QUE SE USE PARA OTRA COSA, SERÁ **DESCARTADO***
